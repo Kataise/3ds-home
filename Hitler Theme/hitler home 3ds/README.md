@@ -1,0 +1,2 @@
+Téléchargez le dossier et mettez le dans le dossier " Thème" de votre carte SD, Remettez votre carte SD dans votre console 
+, allumez la puis allez sur Anemone , vous trouverez normalement le thème. Téléchargez le et profitez !
